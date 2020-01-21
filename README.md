@@ -1,18 +1,22 @@
-# 小姐姐最新下载地址（2019年12月23日更新）
-### [zisi.xyz](http://zisi.xyz)
+# 小姐姐最新下载地址（2020年1月22日更新）
+### [kwr4.xyz](http://kwr4.xyz)
 ### [5jvb.xyz](http://5jvb.xyz)
 ### 主播版下载地址 [037i.xyz](http://037i.xyz)<br> （观众下载无法使用）
 备用观众版下载地址如下<br>
  
-mbua.xyz<br>
-mbro.xyz<br>
 3bok.xyz<br>
-5hny.xyz<br>
-z8di.xyz<br>
 sprz.xyz<br>
 td8j.xyz<br>
-l3pc.xyz<br>
-ch6k.xyz<br>
+8di3.xyz<br>
+w09s.xyz<br>
+p2m2.xyz<br>
+qwur.xyz<br>
+fq2w.xyz<br>
+ige6.xyz<br>
+bx2o.xyz<br>
+rhir.xyz<br>
+h26v.xyz<br>
+
 
 
 备用主播版下载地址如下<br>
